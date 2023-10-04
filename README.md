@@ -1,0 +1,4 @@
+- 👋 Hola, somos @eluniversodeldato
+- 👀 Nuestro interes es proporcionar una formación de calidad adaptada a los nuevos tiempos y todos los perfiles
+- Stay tuned !
+- WIP !
